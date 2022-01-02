@@ -1,6 +1,6 @@
 ### Oi! Eu sou o Edivan Ferreira! 👦🏾
 
-<👨🏾‍💻 Estudante de Desenvolvimento web>
+👨🏾‍💻 Estudante de Desenvolvimento web
 
 
 <div align="center">
