@@ -1,4 +1,4 @@
-### Oi! Eu sou o Edivan Ferreira! 👦🏾
+### Olá! Eu sou o Edivan Ferreira! 👦🏾
 
 👨🏾‍💻 Estudante de Desenvolvimento web
 
